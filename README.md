@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HardinAbAurBhiChota;
 - 👀 I’m interested in Absolute NO one;
-- 🌱 I’m currently Trying to learn every FUCKING thing;
+- 🌱 I’m currently Trying to learn every FCUKING thing;
 - 💞️ I’m looking to collaborate on NOTHING;
 - 📫 How to reach me: YOU try to reach me and I'll see to it that you don't reach back where ever you ever wanted to be
 
